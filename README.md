@@ -8,7 +8,7 @@ i create cosplays / ocs most of the time!
 
 here are some things to know abt me! - - - - - 
 
-- - = hi! i take any pronouns [ he/she/they/it ] mostly he/him tho ! !
+- - - hi! i take any pronouns [ he/she/they/it ] mostly he/him tho ! !
 
 - - - love my friends  <3 = wanna be friends? let me know u better first pls ! ! i might decline if u immediatly try to add me on pt ! !
 
@@ -18,8 +18,18 @@ here are some things to know abt me! - - - - -
 
 - - - i play > > > pt [ pony town ] rblx [ roblox ] mc [ Minecraft ] 
 
-- - - i have pinterest ! ! = i post artwork ! of ocs / lore / Characters / random  [ acc name >>> xomfuuzle ] its kinda dead tho ! ;-;
+- - - i have pinterest ! ! = i post artwork ! of ocs / lore / Characters / random  [ acc name >>> comfuzzle ] its kinda dead tho ! ;-;
 
 - - - FUN FACT ABT ME ! : my personality changest in different games !
 
-_----------------------------------------------------------------------------------------------------------------------------------------_
+__________ 
+
+i heavy kin pangi ! 
+
+i watch > > > mcyt most of the time , people i watch > > > flamefrags, wemmbu, pangi, parrotx2, kunai, wifies, ssundee, itsfunneh, kihec, binoic, doni bobes, alpmau, zmde, apollotv, dr r4t, knarfy, lomedy, 
+
+i love mc smps !  currently watching --- > unstable universe smp, lifesteal smp, gem smp, 
+
+im multifandom ! fandoms ---> dandys world, mcyt, forsaken, trud, adopt me, die of death, vocaloid, 
+
+thats all for now! might update :)
