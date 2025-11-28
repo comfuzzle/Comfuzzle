@@ -20,7 +20,6 @@ here are some things to know abt me! - - - - -
 
 - - - i have pinterest ! ! = i post artwork ! of ocs / lore / Characters / random  [ acc name >>> xomfuuzle ] its kinda dead tho ! ;-;
 
-- - - FUN FACT ABT ME ! : i change moods really fast at times ! and my personallity could change when in different games ! 
+- - - FUN FACT ABT ME ! : my personality changest in different games !
 
-
-                                                          **THANK U FOR READING**
+_----------------------------------------------------------------------------------------------------------------------------------------_
