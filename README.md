@@ -37,3 +37,9 @@ thats all for now! might update :)
 int if u play adopt me PLSSS :')
 
 i love colors! i mostly love >>>> purple - blue - yellow - green - red <<<<
+
+and i also love food ! 
+food u could bribe me with (this is a joke) ↓↓↓
+icecream / pancakes / chips / noodles / cake / sour candy / smoothies ! 
+
+i like drinking more then eating sometimes, i absolutely love water <33
