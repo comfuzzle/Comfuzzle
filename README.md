@@ -24,9 +24,12 @@ here are some things to know abt me! - - - - -
 
 __________ 
 
+<img width="736" height="736" alt="Tak berjudul25_20251212175525" src="https://github.com/user-attachments/assets/7393c5c6-9ec9-4bbd-8fe6-8481c2ce2fcf" />
+
+
 i heavy kin pangi ! 
 
-i watch > > > mcyt most of the time , people i watch > > > flamefrags, wemmbu, pangi, parrotx2, kunai, wifies, ssundee, itsfunneh, kihec, binoic, doni bobes, alpmau, zmde, apollotv, dr r4t, knarfy, lomedy, 
+i watch > > > mcyt most of the time , people i watch > > > flamefrags, wemmbu, pangi, parrotx2, kunai, wifies, ssundee, itsfunneh, kihec, binoic, doni bobes, alpmau, zmde, apollotv, dr r4t, knarfy, lomedy, brittdyycake , rivv3r
 
 i love mc smps !  currently watching --- > unstable universe smp, lifesteal smp, gem smp, 
 
@@ -39,7 +42,9 @@ int if u play adopt me PLSSS :')
 i love colors! i mostly love >>>> purple - blue - yellow - green - red <<<<
 
 and i also love food ! 
+
 food u could bribe me with (this is a joke) ↓↓↓
+
 icecream / pancakes / chips / noodles / cake / sour candy / smoothies ! 
 
 i like drinking more then eating sometimes, i absolutely love water <33
