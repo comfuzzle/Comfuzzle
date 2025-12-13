@@ -33,3 +33,7 @@ i love mc smps !  currently watching --- > unstable universe smp, lifesteal smp,
 im multifandom ! fandoms ---> dandys world, mcyt, forsaken, trud, adopt me, die of death, vocaloid, 
 
 thats all for now! might update :)
+
+int if u play adopt me PLSSS :')
+
+i love colors! i mostly love >>>> purple - blue - yellow - green - red <<<<
