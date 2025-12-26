@@ -1,4 +1,4 @@
-> > > >  " even though i breath it feels as if im dead "
+> > > >  " of i truely tried, would u have cared ? "
 
 > > > > HI! - im comfuzzle! otehr known as aquaticcatzz/Aqua/catz/comfuzzle/fizzy/fiz . ᶻ 𝗓 𐰁
 
