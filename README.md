@@ -1,4 +1,4 @@
-> > > >  " of i truely tried, would u have cared ? "
+> > > >  " if i knew living was a way of torture , then i wouldve never choose to be born "
 
 > > > > HI! - im comfuzzle! otehr known as aquaticcatzz/Aqua/catz/comfuzzle/fizzy/fiz . ᶻ 𝗓 𐰁
 
