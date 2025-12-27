@@ -4,7 +4,7 @@
 
 i create cosplays / ocs most of the time! 
 
-= = = >  chill at docks or at mcyt area [ mostly c+h / int / w2i / ] 🎀
+= = = >  chill at docks or at mcyt area [ mostly c+h / int / w2i / ]  ≽^•⩊•^≼
 
 ──── ୨୧ ──── here are some things to know abt me! ──── 
 
@@ -46,3 +46,7 @@ food u could bribe me with (this is a joke) (⁠.⁠ ⁠❛⁠ ⁠ᴗ⁠ ⁠�
 icecream / pancakes / chips / noodles / cake / sour candy / smoothies ! 
 
 i like drinking more then eating sometimes, i absolutely love water <33 
+
+`_ _ _ _ _ _ _ _ _ _ .  .  .  ˖ .  .⋆.Thank u for reading ! And make sure to stay safe , healthy and sane !`
+
+__________________________☆⌒ ₊ ·💤 𝙰𝚌𝚌𝚞𝚛𝚊𝚝𝚎𝚕𝚢 𝚠𝚊𝚝𝚎𝚛 ⌒ . . ⊹_________________________ ![f43usv](https://github.com/user-attachments/assets/d6d30fb4-07cf-493a-bd21-1391e7d2476b)
