@@ -22,7 +22,9 @@ i create cosplays / ocs most of the time!
 
 -  - i have pinterest ! ! = i post artwork ! of ocs / lore / Characters / random  [ acc name >>> comfuzzle ] its kinda dead tho ! ;-;
 
--  - FUN FACT ABT ME ! : . ⤷ ゛my personality changest in different games ! ˎˊ˗
+-  - hard to handle
+ 
+   - [ what i mean by this is tha im a problematic person (?) emotiononally unstable , cry baby , chaotic , freaky (?) , tired alot , mood able to change according to time or events , overthinker , im just someone whos hard to handle if u get what i mean ] ˎˊ˗
 
 __________ 
 
@@ -31,7 +33,9 @@ __________
 
 i heavy kin pangi ! ꉂ(˵˃ ᗜ ˂˵)
 
-i watch > > > mcyt most of the time , people i watch > > > flamefrags, wemmbu, pangi, parrotx2, kunai, wifies, ssundee, itsfunneh, kihec, binoic, doni bobes, alpmau, zmde, apollotv, dr r4t, knarfy, lomedy, brittdyycake , rivv3r, sam and colby, the boys, aquaraps , fishyblox
+_______________extras_______________ ₊⊹
+
+i watch > > > mcyt most of the time , people i watch > > > flamefrags, wemmbu, pangi, parrotx2, kunai, wifies, ssundee, itsfunneh, kihec, binoic, doni bobes, alpmau, zmde, apollotv, dr r4t, knarfy, lomedy, brittdyycake , rivv3r, sam and colby, the boys, aquaraps , fishyblox , lorenzside 
 
 i love mc smps !  currently watching --- > unstable universe smp, lifesteal smp, bliss smp
 
@@ -41,16 +45,16 @@ int if u play adopt me PLSSS ( ; ^ ; ) = i take trades and free pets  ☆‸⌒
 
 i love colors! i mostly love >>>> purple - blue - yellow - green - red <<<< [ u can bribe me with ] ! 
 
-and i also love food ! ♡ - (˵˃ ᗜ ˂˵)
+and i also love food / drinks  ! ♡ - (˵˃ ᗜ ˂˵)
 
 food u could bribe me with (this is a joke) (⁠.⁠ ⁠❛⁠ ⁠ᴗ⁠ ⁠❛⁠.⁠) ``
 
-icecream / pancakes / chips / noodles / cake / sour candy / smoothies ! 
+icecream / pancakes / chips / noodles / cake / sour candy / smoothies / pies / waffles / milkdhakes / 
 
 i like drinking more then eating sometimes, i absolutely love water <3
 
 > > > > _ ` .⋆.Thank u for reading ! And make sure to stay safe , healthy and sane
 
-
+゛─── this shall be my eternal legacy ──── ゛⊹
 
 ---------------- _________________☆⌒ ₊ ·💤 𝙰𝚌𝚌𝚞𝚛𝚊𝚝𝚎𝚕𝚢 𝚠𝚊𝚝𝚎𝚛 ⌒ . . ⊹_________________ ---------------- ![f43usv](https://github.com/user-attachments/assets/d6d30fb4-07cf-493a-bd21-1391e7d2476b)
