@@ -22,20 +22,34 @@ i create cosplays / ocs most of the time!
 
 -  - i have pinterest ! ! = i post artwork ! of ocs / lore / Characters / random  [ acc name >>> comfuzzle ] its kinda dead tho ! ;-;
 
--  - hard to handle
+-  - straight forward at times / quite bold 
  
-   - [ what i mean by this is tha im a problematic person (?) emotiononally unstable , cry baby , chaotic , freaky (?) , tired alot , mood able to change according to time or events , overthinker , im just someone whos hard to handle if u get what i mean ] ˎˊ˗
+-  - im chaotic when happy [ i mean by this is i will say random things so if its bad things pls ignore ]
+
+-  - emotiononally unstable and a cry baby > easily sad 
+
+-  - freaky at times randomly [ pls tell if uncomfortable my jokes are sometimes freaky so pls tell me and i will stop! ]
+
+-  - sleepy head when without my coffe 💤
+
+-  - mood able to change according to time or events , day usually active sometimes lazy night usually unpridictable
+
+-  - overthinker and inneed of others attention [ its ok to call me Attention seeker! no im not one but i will accept it as a joke ]
+
+-  - when i say afk sometimes i will talk again bcuz i have spare time shen i stop talking thats when im genuinly afk/asleep !
+
+-  - my humour is very cooked and sometimes dark
 
 __________ 
 
 <img width="736" height="736" alt="Tak berjudul25_20251212175525" src="https://github.com/user-attachments/assets/7393c5c6-9ec9-4bbd-8fe6-8481c2ce2fcf" />
 
 
-i heavy kin pangi ! ꉂ(˵˃ ᗜ ˂˵)
+i heavy kin pangi (mcyt) lomedy (mcyt) kihec (mcyt) cheappickle (mcyt) gema (tinggal meninggal show) ! ꉂ(˵˃ ᗜ ˂˵)
 
 _______________extras_______________ ₊⊹
 
-i watch > > > mcyt most of the time , people i watch > > > flamefrags, wemmbu, pangi, parrotx2, kunai, wifies, ssundee, itsfunneh, kihec, binoic, doni bobes, alpmau, zmde, apollotv, dr r4t, knarfy, lomedy, brittdyycake , rivv3r, sam and colby, the boys, aquaraps , fishyblox , lorenzside 
+i watch > > > mcyt most of the time , people i watch > > > flamefrags, wemmbu, pangi, parrotx2, kunai, wifies, ssundee, itsfunneh, kihec, binoic, doni bobes, alpmau, zmde, apollotv, dr r4t, knarfy, lomedy, brittdyycake , rivv3r, sam and colby, the boys, aquaraps , fishyblox , lorenzside , sun kenji , night over , goofy gang , cookie cutter ,
 
 i love mc smps !  currently watching --- > unstable universe smp, lifesteal smp, bliss smp
 
