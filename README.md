@@ -22,7 +22,7 @@ i create cosplays / ocs most of the time!
 
 -  - i have pinterest ! ! = i post artwork ! of ocs / lore / Characters / random  [ acc name >>> comfuzzle ] its kinda dead tho ! ;-;
 
--  - straight forward at times / quite bold 
+-  - im a chill person and i love plushies (⁠ ⁠╹⁠▽⁠╹⁠ ⁠)
  
 -  - im chaotic when happy [ i mean by this is i will say random things so if its bad things pls ignore ]
 
@@ -30,7 +30,7 @@ i create cosplays / ocs most of the time!
 
 -  - freaky at times randomly [ pls tell if uncomfortable my jokes are sometimes freaky so pls tell me and i will stop! ]
 
--  - sleepy head when without my coffe 💤
+-  - sleepy head when without my coffe 💤 if i dont respond that means im either asleep or afk
 
 -  - mood able to change according to time or events , day usually active sometimes lazy night usually unpridictable
 
@@ -39,6 +39,8 @@ i create cosplays / ocs most of the time!
 -  - when i say afk sometimes i will talk again bcuz i have spare time shen i stop talking thats when im genuinly afk/asleep !
 
 -  - my humour is very cooked and sometimes dark
+
+-  - i show affection through gestures like hugs cuddles and gifts , i try my best with my words !
 
 __________ 
 
