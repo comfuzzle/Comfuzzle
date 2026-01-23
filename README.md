@@ -10,7 +10,7 @@ i create cosplays / ocs most of the time!
 
 ──── ୨୧ ──── here are some things to know abt me! ──── 
 
-── . . 
+── 
 
 -  - hi! i take any pronouns [ he/she/they/it ] mostly he/him tho ! ! ₊⊹
 
@@ -46,11 +46,10 @@ i create cosplays / ocs most of the time!
 
 __________ 
 
-𝐋𝐎𝐎𝐊 𝐀𝐓 𝐌𝐄 .ᐟ
+𝐋𝐎𝐎𝐊 𝐀𝐓 𝐌𝐄 .ᐟ 
 
 
 <img width="748" height="748" alt="Tak berjudul28_20260122224032" src="https://github.com/user-attachments/assets/b5bbf71a-58bd-4fc0-88b6-73e3584e9e99" />
-
 
 
 i heavy kin pangi (mcyt) lomedy (mcyt) kihec (mcyt) cheappickle (mcyt) gema (tinggal meninggal show) ! ꉂ(˵˃ ᗜ ˂˵)
