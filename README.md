@@ -48,8 +48,9 @@ __________
 
 𝐋𝐎𝐎𝐊 𝐀𝐓 𝐌𝐄 .ᐟ
 
-<img width="176" height="176" alt="Tak berjudul25_20251212175525" src="https://github.com/user-attachments/assets/7393c5c6-9ec9-4bbd-8fe6-8481c2ce2fcf" />
-<img width="586" height="548" alt="Tak berjudul26_20260120235033" src="https://github.com/user-attachments/assets/951bf1be-7e38-45c1-8177-1bb74624ef52" />
+
+<img width="748" height="748" alt="Tak berjudul28_20260122224032" src="https://github.com/user-attachments/assets/b5bbf71a-58bd-4fc0-88b6-73e3584e9e99" />
+
 
 
 i heavy kin pangi (mcyt) lomedy (mcyt) kihec (mcyt) cheappickle (mcyt) gema (tinggal meninggal show) ! ꉂ(˵˃ ᗜ ˂˵)
