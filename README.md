@@ -46,7 +46,7 @@ i create cosplays / ocs most of the time!
 
 __________ 
 
-𝐋𝐎𝐎𝐊 𝐀𝐓 𝐌𝐄 .ᐟ 
+𝐋𝐎𝐎𝐊 𝐀𝐓 𝐌𝐄 ! . . 
 
 
 <img width="748" height="748" alt="Tak berjudul28_20260122224032" src="https://github.com/user-attachments/assets/b5bbf71a-58bd-4fc0-88b6-73e3584e9e99" />
@@ -75,6 +75,13 @@ icecream / pancakes / chips / noodles / cake / sour candy / smoothies / pies / w
 i like drinking more then eating sometimes, i absolutely love water <3
 
 > > > > _ ` .⋆.Thank u for reading ! And make sure to stay safe , healthy and sane
+
+____𝑾𝒉𝒆𝒏 𝑾𝒊𝒍𝒍 𝒕𝒉𝒊𝒔 𝒃𝒆𝒄𝒐𝒎𝒆 𝒂 𝒅𝒖𝒐?____ 
+
+── . . . ──☆⌒ ₊ · whyd u let me fall? ⌒ . . ⊹ : " `  [ ₊⊹ ── i know i waited too long. . . ── " ' ]
+
+<img width="2048" height="2048" alt="Tak berjudul28" src="https://github.com/user-attachments/assets/ed580f44-5a9a-40b6-9d9b-996b3cdc5d6d" />
+
 
 ゛─── this shall be my eternal legacy ──── ゛⊹
 
