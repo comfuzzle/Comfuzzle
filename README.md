@@ -10,7 +10,7 @@ i create cosplays / ocs most of the time!
 
 ──── ୨୧ ──── here are some things to know abt me! ──── 
 
-── 
+── btw hey if @freakliff if ur reading this i just wanna say u stink a lil..
 
 -  - hi! i take any pronouns [ he/she/they/it ] mostly he/him tho ! ! ₊⊹
 
