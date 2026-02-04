@@ -1,6 +1,6 @@
-> > > >  " if i knew living was a way of torture , then i wouldve never choose to be born "
+$\textcolor{#EAAC8B}{\text{falling asleep to the melody of ur voice. . .}}$
 
-> > > > HI! - im comfuzzle! otehr known as aquaticcatzz/Aqua/catz/comfuzzle/fizzy/fiz  ᶻ 𝗓 𐰁
+$\textcolor{#EAAC8B}{\text{HI! - im comfuzzle! otehr known as aquaticcatzz/Aqua/catz/comfuzzle/fizzy/fiz  ᶻ 𝗓 𐰁.}}$
 
 > > > > other names if close - ₊⊹
 
@@ -16,7 +16,7 @@ i create cosplays / ocs most of the time!
 
 -  - love my friends  <3 = wanna be friends? let me know u better first pls ! ! i might decline if u immediatly try to add me on pt ! !
 
--  - im a quiet person unless with friends ! im not easily agitated ! i do get uncomfortable easily ! (¬`‸´¬)
+-  - im a quiet person unless with friends ! im not easily agitated ! dont make me uncomfortable tho ! (¬`‸´¬)
 
 -  - DNC my skins ! pls it takes a long time to make skins ! ! 
 
@@ -38,15 +38,17 @@ i create cosplays / ocs most of the time!
 
 -  - overthinker and inneed of others attention [ its ok to call me Attention seeker! no im not one but i will accept it as a joke ]
 
--  - when i say afk sometimes i will talk again bcuz i have spare time shen i stop talking thats when im genuinly afk/asleep !
+-  - when i say afk sometimes i will talk again bcuz i have spare time when i stop talking thats when im genuinly afk/asleep !
 
 -  - my humour is very cooked and sometimes dark
 
 -  - i show affection through gestures like hugs cuddles and gifts , i try my best with my words !
 
+-  - unemployed and may or may not be addicted to every game i play ! 
+
 __________ 
 
-𝐋𝐎𝐎𝐊 𝐀𝐓 𝐌𝐄 ! . . 
+# 𝐋𝐎𝐎𝐊 𝐀𝐓 𝐌𝐄 ! . . 
 
 
 <img width="748" height="748" alt="Tak berjudul28_20260122224032" src="https://github.com/user-attachments/assets/b5bbf71a-58bd-4fc0-88b6-73e3584e9e99" />
@@ -83,6 +85,6 @@ ____𝑾𝒉𝒆𝒏 𝑾𝒊𝒍𝒍 𝒕𝒉𝒊𝒔 𝒃𝒆𝒄𝒐𝒎𝒆 
 <img width="2048" height="2048" alt="Tak berjudul28" src="https://github.com/user-attachments/assets/ed580f44-5a9a-40b6-9d9b-996b3cdc5d6d" />
 
 
-゛─── this shall be my eternal legacy ──── ゛⊹
+$\textcolor{#EAAC8B}{\text{゛─── this shall be my eternal legacy ──── ゛⊹.}}$
 
----------------- _________________☆⌒ ₊ ·💤 𝙰𝚌𝚌𝚞𝚛𝚊𝚝𝚎𝚕𝚢 𝚠𝚊𝚝𝚎𝚛 ⌒ . . ⊹_________________ ---------------- ![f43usv](https://github.com/user-attachments/assets/d6d30fb4-07cf-493a-bd21-1391e7d2476b)
+---------------- _________________☆⌒ ₊ ·💤 im 𝙰𝚌𝚌𝚞𝚛𝚊𝚝𝚎𝚕𝚢 𝚠𝚊𝚝𝚎𝚛 ⌒ . . ⊹_________________ ---------------- ![f43usv](https://github.com/user-attachments/assets/d6d30fb4-07cf-493a-bd21-1391e7d2476b)
