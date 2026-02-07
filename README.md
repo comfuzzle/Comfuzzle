@@ -1,10 +1,10 @@
 $\textcolor{#6D597A}{\text{falling asleep to the melody of ur voice. . .}}$
 
-$\textcolor{#E56B6F}{\text{HI! - im comfuzzle! otehr known as aquaticcatzz/Aqua/catz/comfuzzle/fizzy/fiz  ᶻ 𝗓 𐰁.}}$
+$\textcolor{#77BDFB}{\text{HI! - im comfuzzle! otehr known as aquaticcatzz/Aqua/catz/comfuzzle/fizzy/fiz  ᶻ 𝗓 𐰁.}}$
 
 > > > > other names if close - ₊⊹
 
-i create cosplays / ocs most of the time! 
+$\textcolor{#8E929B}{\text{i create cosplays / ocs most of the time! .}}$
 
 = = = >  chill at docks or at mcyt area [ mostly c+h / int / w2i / ]  ≽^•⩊•^≼
 
