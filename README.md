@@ -1,6 +1,6 @@
-$\textcolor{#EAAC8B}{\text{falling asleep to the melody of ur voice. . .}}$
+$\textcolor{#6D597A}{\text{falling asleep to the melody of ur voice. . .}}$
 
-$\textcolor{#EAAC8B}{\text{HI! - im comfuzzle! otehr known as aquaticcatzz/Aqua/catz/comfuzzle/fizzy/fiz  ᶻ 𝗓 𐰁.}}$
+$\textcolor{#E56B6F}{\text{HI! - im comfuzzle! otehr known as aquaticcatzz/Aqua/catz/comfuzzle/fizzy/fiz  ᶻ 𝗓 𐰁.}}$
 
 > > > > other names if close - ₊⊹
 
@@ -12,7 +12,7 @@ i create cosplays / ocs most of the time!
 
 ── btw hey if @freakliff if ur reading this i just wanna say u stink a lil..
 
--  - hi! i take any pronouns [ he/she/they/it ] mostly he/him tho ! ! ₊⊹
+-  - hi! i take any pronouns ( he/she/they/it ) mostly he/him tho ! ! ₊⊹
 
 -  - love my friends  <3 = wanna be friends? let me know u better first pls ! ! i might decline if u immediatly try to add me on pt ! !
 
