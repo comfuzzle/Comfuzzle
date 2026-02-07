@@ -1,12 +1,12 @@
-$\textcolor{#6D597A}{\text{falling asleep to the melody of ur voice. . .}}$
+$\textcolor{#8BAFD4}{\text{falling asleep to the melody of ur voice. . .}}$
 
 $\textcolor{#77BDFB}{\text{HI! - im comfuzzle! otehr known as aquaticcatzz/Aqua/catz/comfuzzle/fizzy/fiz  ᶻ 𝗓 𐰁.}}$
 
 > > > > other names if close - ₊⊹
 
-$\textcolor{#8E929B}{\text{i create cosplays / ocs most of the time! .}}$
+$\textcolor{#8E929B}{\text{i create cosplays / ocs most of the time!.}}$
 
-= = = >  chill at docks or at mcyt area [ mostly c+h / int / w2i / ]  ≽^•⩊•^≼
+- { chill at docks or at mcyt area ( mostly c+h / int / w2i / )  ≽^•⩊•^≼
 
 ──── ୨୧ ──── here are some things to know abt me! ──── 
 
@@ -80,11 +80,11 @@ i like drinking more then eating sometimes, i absolutely love water <3
 
 ____𝑾𝒉𝒆𝒏 𝑾𝒊𝒍𝒍 𝒕𝒉𝒊𝒔 𝒃𝒆𝒄𝒐𝒎𝒆 𝒂 𝒅𝒖𝒐?____ 
 
-── . . . ──☆⌒ ₊ · whyd u let me fall? ⌒ . . ⊹ : " `  [ ₊⊹ ── i know i waited too long. . . ── " ' ]
+$\textcolor{#E56B6F}{\text{── . . . ──☆⌒ ₊ · whyd u let me fall? ⌒ . . ⊹ : " `.}}$  $\textcolor{#6D597A}{\text{[ ₊⊹ ── i know i waited too long. . . ── " ' ].}}$
 
 <img width="2048" height="2048" alt="Tak berjudul28" src="https://github.com/user-attachments/assets/ed580f44-5a9a-40b6-9d9b-996b3cdc5d6d" />
 
 
-$\textcolor{#EAAC8B}{\text{゛─── this shall be my eternal legacy ──── ゛⊹.}}$
+   $\textcolor{#8E929B}{\text{゛─── this shall be my eternal legacy ──── ゛⊹.}}$
 
 ---------------- _________________☆⌒ ₊ ·💤 im 𝙰𝚌𝚌𝚞𝚛𝚊𝚝𝚎𝚕𝚢 𝚠𝚊𝚝𝚎𝚛 ⌒ . . ⊹_________________ ---------------- ![f43usv](https://github.com/user-attachments/assets/d6d30fb4-07cf-493a-bd21-1391e7d2476b)
