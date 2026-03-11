@@ -1,6 +1,6 @@
-$\textcolor{#8BAFD4}{\text{falling asleep to the melody of ur voice. . .}}$
+$\textcolor{#8E929B}{\text{falling asleep to the melody of ur voice. . .}}$
 
-$\textcolor{#77BDFB}{\text{HI! - im comfuzzle! otehr known as aquaticcatzz/Aqua/catz/comfuzzle/fizzy/fiz  ᶻ 𝗓 𐰁.}}$
+$\textcolor{#8E929B}{\text{HI! - im comfuzzle! otehr known as aquaticcatzz/Aqua/catz/comfuzzle/fizzy/fiz  ᶻ 𝗓 𐰁.}}$
 
 > > > > other names if close - ₊⊹
 
