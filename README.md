@@ -1,6 +1,6 @@
 $\textcolor{#8E929B}{\text{" sacrificing my life for u. . ."}}$
 
-$\textcolor{#8E929B}{\text{HI! - im comfuzzle! otehr known as aquaticcatzz/Aqua/catz/comfuzzle/fizzy/fiz  ᶻ 𝗓 𐰁.}}$
+$\textcolor{#8E929B}{\text{HI! - im comfuzzle! oteher known as aquaticcatzz/Aqua/catz/comfuzzle/fizzy/fiz  ᶻ 𝗓 𐰁.}}$
 
 > > > > other names if close - ₊⊹
 
@@ -28,7 +28,7 @@ $\textcolor{#8E929B}{\text{i create cosplays / ocs most of the time!.}}$
  
 -  - im chaotic when happy [ i mean by this is i will say random things so if its bad things pls ignore ]
 
--  - emotiononally unstable and a cry baby > easily sad 
+-  - emotiononally unstable and a cry baby . easily cries / get hurt
 
 -  - freaky at times randomly [ pls tell if uncomfortable my jokes are sometimes freaky so pls tell me and i will stop! ]
 
@@ -36,7 +36,7 @@ $\textcolor{#8E929B}{\text{i create cosplays / ocs most of the time!.}}$
 
 -  - mood able to change according to time or events , day usually active sometimes lazy night usually unpridictable
 
--  - overthinker and inneed of others attention [ its ok to call me Attention seeker! no im not one but i will accept it as a joke ]
+-  - overthinker and inneed of others attention cuz im a ahole/jk
 
 -  - when i say afk sometimes i will talk again bcuz i have spare time when i stop talking thats when im genuinly afk/asleep !
 
@@ -46,6 +46,9 @@ $\textcolor{#8E929B}{\text{i create cosplays / ocs most of the time!.}}$
 
 -  - unemployed and may or may not be addicted to every game i play ! 
 
+- - im ok with alat of things and im an open book . i also like making quotes 
+ 
+- - i overshare information but i like keeping secrets 
 __________ 
 
 # 𝐋𝐎𝐎𝐊 𝐀𝐓 𝐌𝐄 ! . . 
