@@ -1,4 +1,6 @@
 ![](https://komarev.com/ghpvc/?username=comfuzzle&abbrievated=true&style=plastic&color=blue&label=coolies)
+<img width="719" height="632" alt="Tak berjudul46_20260421214603" src="https://github.com/user-attachments/assets/36cae809-b186-4d3f-bc1a-f472dcbafbf9" />
+
 
    [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&weight=900&size=15&pause=1000&color=92C6F9&vCenter=true&multiline=true&width=850&height=60&lines=+%E2%80%81++im+searching+for+the+comfort+of+ur+voice.)](https://git.io/typing-svg)
 
