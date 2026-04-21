@@ -1,6 +1,7 @@
 ![](https://komarev.com/ghpvc/?username=comfuzzle&abbrievated=true&style=plastic&color=blue&label=coolies)
 
-<p align="center">$\textcolor{#8E929B}{\text{" love is a only word . u will have to prove it. . ."}}$
+   [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&weight=900&size=15&pause=1000&color=F76565&vCenter=true&multiline=true&width=850&height=60&lines=+%E2%80%81++im+searching+for+the+comfort+of+ur+voice.)](https://git.io/typing-svg)
+
 
 <p align="center">$\textcolor{#8E929B}{\text{HI! - im comfuzzle! other known as aquaticcatzz/Aqua/catz/comfuzzle/ali/jay  ᶻ 𝗓 𐰁.}}$
 
