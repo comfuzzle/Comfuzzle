@@ -95,7 +95,7 @@ i like drinking more then eating sometimes, i absolutely love water <3
 
 > > > > _ ` .⋆.Thank u for reading ! And make sure to stay safe , healthy and sane
 
-<p align="center">____𝑾𝒉𝒆𝒏 𝑾𝒊𝒍𝒍 𝒕𝒉𝒊𝒔 𝒃𝒆𝒄𝒐𝒎𝒆 𝒂 𝒅𝒖𝒐?____ 
+## <div align="center"> $${\color{#8E929B}" \space 𝑾𝒉𝒆𝒏 \space 𝑾𝒊𝒍𝒍 \space 𝒕𝒉𝒊𝒔 \space 𝒃𝒆𝒄𝒐𝒎𝒆 \space 𝒂 \space 𝒅𝒖𝒐 \space ? \space "}$$
 
 <p align="center">$\textcolor{#E56B6F}{\text{── . . . ──☆⌒ ₊ · whyd u let me fall? ⌒ . . ⊹ : " `.}}$  <p align="center">$\textcolor{#6D597A}{\text{[ ₊⊹ ── i know i waited too long. . . ── " ' ].}}$
 
