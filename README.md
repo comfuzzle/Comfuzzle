@@ -11,7 +11,7 @@
 
 <p align="center"> > > other names if close - ₊⊹ < < 
 
-<p align="center"> > > nicknames are appericated <3 < < 
+<p align="center"> > > nicknames are appriciated <3 < < 
 
 <p align="center">$\textcolor{#8E929B}{\text{i create cosplays / ocs most of the time!.}}$
 
@@ -53,7 +53,7 @@
 
 -  - when i say afk sometimes i will talk again bcuz i have spare time when i stop talking thats when im genuinly afk/asleep !
 
--  - my humour is very cooked and sometimes dark
+-  - i used tonetags such as /jk . /hvyj . /sar . /srs . /nsrs
 
 -  - i show affection through gestures like hugs cuddles and gifts , i try my best with my words !
 
@@ -79,7 +79,7 @@ biigest fan of : pangi , lomedy , al1 , goofygang , doni bobes , ssundee , zmde 
 
 i love mc smps !  currently watching --- > unstable universe smp, lifesteal smp, bliss smp
 
-im multifandom ! fandoms ---> dandys world, mcyt, forsaken, trud, adopt me, die of death, vocaloid, paranormal . ₊⊹ . ୨୧ 
+im multifandom ! fandoms ---> mcyt, adopt me, die of death, vocaloid, paranormal . ₊⊹ . ୨୧ 
 
 int if u play adopt me PLSSS ( ; ^ ; ) = i take trades and free pets  ☆‸⌒ 
 
