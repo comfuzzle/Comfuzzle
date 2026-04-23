@@ -5,7 +5,9 @@
 <img width="719" height="632" alt="Tak berjudul46_20260421214603" src="https://github.com/user-attachments/assets/36cae809-b186-4d3f-bc1a-f472dcbafbf9" />
 
 
-   [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&weight=900&size=15&pause=1000&color=92C6F9&vCenter=true&multiline=true&width=850&height=60&lines=+%E2%80%81++im+searching+for+the+comfort+of+ur+voice.)](https://git.io/typing-svg)
+<p align="center">
+  <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Pixelify+Sans&weight=200&pause=1000&color=92C6F9&width=435&lines=look+at+you+a+beutifull+butterfly;flying+freely+in+the+night+sky" alt="Typing SVG" /></a>
+</p>
 
 <p align="center">$\textcolor{#8E929B}{\text{HI! - im comfuzzle! other known as aquaticcatzz/Aqua/catz/comfuzzle/ali/jay  ᶻ 𝗓 𐰁.}}$
 
