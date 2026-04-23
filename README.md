@@ -9,7 +9,7 @@
   <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Pixelify+Sans&weight=200&pause=1000&color=92C6F9&width=435&lines=look+at+you+a+beutifull+butterfly;flying+freely+in+the+night+sky" alt="Typing SVG" /></a>
 </p>
 
-<p align="center">$\textcolor{#8E929B}{\text{HI! - im comfuzzle! other known as aquaticcatzz/Aqua/catz/comfuzzle/ali/jay  ᶻ 𝗓 𐰁.}}$
+<p align="center">$\textcolor{#8E929B}{\text{HI! - im catz! other known as aquaticcatzz/Aqua/catz/theo/ali/jay  ᶻ 𝗓 𐰁.}}$
 
 <p align="center"> > > other names if close - ₊⊹ < < 
 
